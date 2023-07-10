@@ -1,0 +1,1 @@
+Beginig with the redirections
